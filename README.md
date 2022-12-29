@@ -1,0 +1,1 @@
+# elparche52-static
